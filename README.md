@@ -18,4 +18,4 @@
 
 - 但即使再无所不能，摩柯也会有很怕寂寞的一面，对乐队里的其他人有很强的依赖感，很希望给乐队的大家帮上忙
 
-  ![徵羽摩柯V4公式服三视图](faf2b2119313b07e1921f6ae0cd7912396dd8cfc.jpg)
+![徵羽摩柯三视图](https://bkimg.cdn.bcebos.com/pic/faf2b2119313b07e1921f6ae0cd7912396dd8cfc?x-bce-process=image/format,f_auto/watermark,image_d2F0ZXIvYmFpa2UyNzI,g_7,xp_5,yp_5,P_20/resize,m_lfit,limit_1,h_1080)
